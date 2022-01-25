@@ -1,0 +1,2 @@
+# shop-share
+Hi, we are a team of travelers and lovers of buying cool, necessary and sometimes rare items. We have created a platform so that, being on the other side of the world (and maybe in a neighboring city), you may have an access to any product anywhere in the world that can be bought and delivered to you. We love shopping and we want to share this opportunity with you, your family, and friends.
